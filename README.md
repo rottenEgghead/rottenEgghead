@@ -1,7 +1,6 @@
 ![Spongebob Bring it around town Gif](https://i.ibb.co/gPG11Kb/spongebob-Bring-It-Around-Town.gif)
 <br>
-**Izzy - Sept 14 - he/they/she**
-<br>
+*Izzy - Sept 14 (16 y.o.) - he/they/she*
 ### Interests
 * General
   - Drawing and designing characters
@@ -10,11 +9,15 @@
   - Seeking games that have any character customization
   - [My beloved](https://www.benjerry.com/flavors/chocolate-chip-cookie-dough-ice-cream)
 * Music
-  - New wave / Softer rock genre
+  - New wave / Softer rock genres
   - The Cardigans
   - Lemon Demon
   - Oingo Boingo
   - N.E.R.D
-<br>
+
+### Extra Stuff
+* I immersive daydream quite a bit, and have paras (two atm). Feel free to ask questions about them!
+* I practice law of assumption on and off, but I love learning about it and applying it to my life
+* I code sometimes. I learned HTML, CSS, and Lua, and am currently learning C++. My dream is to make an open-source software that expands everyone's creativity!
 
 **Might add more later, stay tuned!!**
