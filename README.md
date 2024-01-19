@@ -2,18 +2,23 @@
 <br>
 *Izzy - Sept 14 (16 y.o.) - he/they/she*
 ### Interests
-* General
+- General
   - Drawing and designing characters
   - Getting into niche subjects for a 2-7 days before dropping it
   - Trying out new computer softwares
   - Seeking games that have any character customization
   - [My beloved](https://www.benjerry.com/flavors/chocolate-chip-cookie-dough-ice-cream)
-* Music
+- Music
   - New wave / Softer rock genres
   - The Cardigans
-  - Lemon Demon
+  - **The Trilogy** (Lemon Demon / Will Wood / Tally Hall)
   - Oingo Boingo
   - N.E.R.D
+  - Jamiroquai
+  - Human Zoo
+- Music I'm getting into:
+  - Divinyls
+  - Tom Lehrer (please tell me good songs from him!!)
 
 ### Extra Stuff
 * I immersive daydream quite a bit, and have paras (two atm). Feel free to ask questions about them!
