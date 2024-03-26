@@ -11,11 +11,11 @@
 - Music
   - New wave / Softer rock genres
   - The Cardigans
-  - **The Trilogy** (Lemon Demon / Will Wood / Tally Hall)
   - Oingo Boingo
   - N.E.R.D
   - Jamiroquai
   - Human Zoo
+  - **The Trilogy** (Lemon Demon / Will Wood / Tally Hall)
 - Music I'm getting into:
   - Divinyls
   - Tom Lehrer (please tell me good songs from him!!)
