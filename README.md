@@ -1,27 +1,23 @@
-![Spongebob Bring it around town Gif](https://i.ibb.co/gPG11Kb/spongebob-Bring-It-Around-Town.gif)
-<br>
-*Izzy - Sept 14 (16 y.o.) - he/they/she*
-### Interests
-- General interests
-  - Listening to music!!!
-  - Drawing and designing characters
-  - Getting into niche subjects for a 2-7 days before dropping it
-  - Trying out new computer softwares
-  - Seeking games that have any character customization
-  - [My beloved](https://www.benjerry.com/flavors/chocolate-chip-cookie-dough-ice-cream)
-- Music
-  - New wave / Rock n roll / Any music with uncommon chord progressions, time signatures, and/or unique vocals!
-  - The Cardigans
-  - Oingo Boingo
-  - N.E.R.D
-  - Jamiroquai
-  - Tom Lehrer
-  - The Peanut Butter Conspiracy
-  - Scissor Sisters (give reccs please!!)
-  - Human Zoo
-  - **The Trilogy** (Lemon Demon / Will Wood / Tally Hall)
-
-### Extra Stuff
-* I immersive daydream quite a bit, and have paras (two atm). Feel free to ask questions about them!
-* I practice law of assumption on and off, but I love learning about it and applying it to my life
-* I code sometimes. I learned HTML, CSS, and Lua. My dream is to make an open-source software that expands everyone's creativity!
+![Gif of Winslow Leach from Phantom of the Paradise playing the piano](https://files.catbox.moe/a720s8.gif) <br>
+he/they/she ~ 17 yo <br><br>
+### ~ Before you interact ~
+I don't accept friend requests from people under 16 / over 19 <br>
+I really don't have a specific DNI list; if you're a creep or whatever, I'll just block
+### ~ PT status info ~
+```diff
++ Online = Feel free to interact with me!
+! Away = Probably not on-tab or I'm just doing something outside the game. Whisper me to get my attention (eventually).
+- Busy = Online, but I'm preoccupied with something. You can still whisper me, though!
+@@ Looking for chat = Self explanatory. I only have this on when I'm really bored in-game, lol.@@
+```
+### ~ (Cluttered) Lists of interests ~
+* Immersive daydreaming
+* 70s fashion
+* Oingo Boingo
+* Jamiroquai
+* Video game engines
+* The Cardigans
+* Margo Guryan
+* N.E.R.D
+* SpongeBob SquarePants
+* Whatever I'm hyperfixating on. 🤷
