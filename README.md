@@ -1,5 +1,6 @@
 ![Gif of Winslow Leach from Phantom of the Paradise playing the piano](https://files.catbox.moe/a720s8.gif) <br>
-he/they/she ~ 17 yo <br><br>
+he/they/she ~ 17 yo <br>
+INTJ-T ~ virgo <br><br>
 ### ~ Before you interact ~
 I don't accept friend requests from people under 16 / over 19 <br>
 I really don't have a specific DNI list; if you're a creep or whatever, I'll just block
