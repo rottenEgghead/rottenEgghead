@@ -1,6 +1,6 @@
-![Gif of Winslow Leach from Phantom of the Paradise playing the piano](https://files.catbox.moe/a720s8.gif) <br>
+![An animated gif from Forbidden Zone 1980](https://i.ibb.co/whkP63TF/zap-raygun.gif) <br>
 he/they/she ~ 17 yo <br>
-INTJ-T ~ virgo <br><br>
+ISTJ ~ virgo <br><br>
 ### ~ Before you interact ~
 I don't accept friend requests from people under 16 / over 19 <br>
 I really don't have a specific DNI list; if you're a creep or whatever, I'll just block
@@ -14,11 +14,15 @@ I really don't have a specific DNI list; if you're a creep or whatever, I'll jus
 ### ~ (Cluttered) Lists of interests ~
 * Immersive daydreaming
 * 70s fashion
+* Video game engines
+* SpongeBob SquarePants
+* Cognitive function stacks
+* Whatever I'm hyperfixating on. 🤷
+
+### ~ Music Artists I Like ~
 * Oingo Boingo
 * Jamiroquai
-* Video game engines
+* Mindless Self Indulgence
 * The Cardigans
 * Margo Guryan
 * N.E.R.D
-* SpongeBob SquarePants
-* Whatever I'm hyperfixating on. 🤷
