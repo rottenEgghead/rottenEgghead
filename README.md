@@ -1,18 +1,19 @@
 <kbd align="center">
-<div align="center" style="border: 1px solid;">
-  <img src="https://i.ibb.co/whkP63TF/zap-raygun.gif" alt="An animated gif from Forbidden Zone (1980)"><be>
+<div align="center">
+  <img src="https://i.ibb.co/whkP63TF/zap-raygun.gif" alt="An animated gif from Forbidden Zone (1980)"><br><br>
   <p>he/they/she ~ 17 yo <br><br>
   ISTJ ~ Virgo</p>
-  
+
   <details>
-    <summary>Before you interact...</summary>
+    <summary>Before you interact</summary>
     <br>
-    <p>I don't accept friend requests from people under 16 / over 19 <br>
-    I really don't have a specific DNI list; if you're a creep or whatever, I'll just block</p>
+    <p>- I rather have mutuals in my age range (16-19) <br>
+    - I really don't have a specific DNI list; if you're a creep or whatever, I'll just block <br>
+    - I typically am not the first one to</p>
   </details>
   
   <details>
-    <summary>PT Status Info</summary>
+    <summary>PT status info</summary>
     <br>
     <p>
       <img src="https://placehold.co/14/7DDA58/7DDA58.png" alt="Online"> - Open for interaction <br>
@@ -30,6 +31,7 @@
     Video-game engines <br>
     SpongeBob SquarePants <br>
     Cognitive function stacks / MBTI types <br>
+    Old technology <br>
     Whatever I'm hyperfixating on</p>
   </details>
 
