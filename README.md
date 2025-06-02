@@ -9,7 +9,7 @@
     <br>
     <p>- I rather have mutuals in my age range (16-19) <br>
     - I really don't have a specific DNI list; if you're a creep or whatever, I'll just block <br>
-    - I typically am not the first one to</p>
+    - I typically am not the first one to speak, but feel free to strike up a convo</p>
   </details>
   
   <details>
