@@ -44,5 +44,11 @@
     The Cardigans <br>
     N.E.R.D</p>
   </details>
+
+  <details>
+    <summary>Extra links</summary>
+    <br>
+    <p><a href="https://en.pronouns.page/@rottenEgghead">pronouns.page</a></p>
+  </details>
 </div>
 </kbd>
