@@ -1,6 +1,6 @@
 <kbd align="center">
 <div align="center">
-  <img src="https://i.ibb.co/whkP63TF/zap-raygun.gif" alt="An animated gif from Forbidden Zone (1980)"><br><br>
+  <img src="https://i.ibb.co/99GRbt04/jimmy-urine-msi.gif" alt="A gif taken from a live Mindless Self Indulgence concert performance"><br><br>
   <p>he/they/she ~ 17 yo <br><br>
   ISTJ ~ Virgo</p>
 
