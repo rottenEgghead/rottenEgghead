@@ -1,6 +1,3 @@
-> [!IMPORTANT]
-> 7/25/2025: https://r2.whiteboardfox.com/24756249-2254-3417
-
 <kbd align="center">
 <div align="center">
   <img src="https://i.ibb.co/99GRbt04/jimmy-urine-msi.gif" alt="A gif taken from a live Mindless Self Indulgence concert performance"><br><br>
