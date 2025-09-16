@@ -1,7 +1,7 @@
 <div align="center">
 <kbd align="center">
   <img src="https://i.ibb.co/99GRbt04/jimmy-urine-msi.gif" alt="A gif taken from a live Mindless Self Indulgence concert performance"><br><br>
-  <p>he/they/she ~ 17 yo <br><br>
+  <p>he/they/she ~ 18 yo <br><br>
   ISTJ ~ Virgo</p>
 
   <details>
